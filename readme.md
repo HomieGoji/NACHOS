@@ -1,0 +1,1 @@
+A guaranteed favorite.

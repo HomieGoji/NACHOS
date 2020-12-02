@@ -1,0 +1,3 @@
+Preheat oven to 350 Degrees Fahrenheit in a large skillet, cook and crumble beef over medium heat until no longer pink,5-7 minutes; drain. Stir in taco seasoning and water; bring to a boil. Reduce heat; simmer, uncovered, until thickened, about 5 minutes, stirring occasionally. In an ungreased 13-by-9 inch baking pan, layer a third of each of the following: chips, beans, beef mixture and queso dip. Repeat layers twice. Bake, uncovered, until heated through, 10-15 minutes. Top with tomatoes and chives; serve immediately with sour cream on the side.
+
+Total Cooking Time: 26 Minutes
